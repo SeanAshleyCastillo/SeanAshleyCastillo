@@ -7,7 +7,7 @@
 
 - I am a gamer in heart so I play video games during my free time but I am currently starting to turn programming as one of my hobbies since I enjoy expanding my knowledge in its different fields.
 
-- 📫 How to reach me **sfcastillo@up.edu.ph**
+- 📫 How to reach me **sfcastillo@up.edu.ph** or **seanashleycastllo@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
